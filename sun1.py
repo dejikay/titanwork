@@ -1,3 +1,3 @@
 Cosmos
 Milkyway
-Dark Matter
+Galaxy
